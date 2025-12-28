@@ -2,8 +2,16 @@
 
 They began now to gather in the small harvest they had, and to fit up their houses and dwellings against winter, being all well recovered in health and strength and had all things in good plenty. For as some were thus employed in affairs abroad, others were exercised in fishing, about cod and bass and other fish, of which they took good store, of which every family had their portion. All the summer there was no want; and now began to come in store of fowl, as winter approached, of which this place did abound when they came first (but afterward decreased by degrees). And besides waterfowl there was great store of wild turkeys, of which they took many, besides venison, etc. Besides, they had about a peck of meal a week to a person, or now since harvest, Indian corn to that proportion. Which made many afterwards write so largely of their plenty here to their friends in England, which were not feigned but true reports.
 
+> **Annotation:** Bradford emphasizes the material abundance and provision, setting the stage for a providential interpretation.
+
 And God be praised, we had a good increase. Indian corn, and our barley good, but our peas not worth the gathering, for we feared they were too late sown. They came up very well, and blossomed, but the sun parched them in the blossom.
+
+> **Annotation:** Direct invocation of divine praise, typical of Puritan language where success is attributed to God's blessing.
 
 Our harvest being gotten in, our governor sent four men on fowling, that so we might after a special manner rejoice together after we had gathered the fruit of our labors. They four in one day killed as much fowl as, with a little help beside, served the company almost a week. At which time, amongst other recreations, we exercised our arms, many of the Indians coming amongst us, and among the rest their greatest king Massasoit, with some ninety men, whom for three days we entertained and feasted, and they went out and killed five deer, which they brought to the plantation and bestowed on our governor, and upon the captain and others. And although it be not always so plentiful as it was at this time with us, yet by the goodness of God, we are so far from want that we often wish you partakers of our plenty.
 
+> **Annotation:** The phrase "by the goodness of God" explicitly frames the abundance as a divine gift. The "special manner rejoice together" suggests a religious celebration of harvest, aligning with Puritan practice of thanksgiving days.
+
 We have found the Indians very faithful in their covenant of peace with us; very loving and ready to pleasure us. We often go to them, and they come to us; some of us have been fifty miles by land in the country with them; the occasions and relations whereof you shall understand by our general and more full declaration of things. We have placed our dwellings and built our houses in a most wholesome and pleasant situation, and we have good store of fish, fowl, and venison, etc. And we have here competent means to live comfortably, if we are but thankful to God for His mercies.
+
+> **Annotation:** The term "covenant of peace" echoes Puritan covenant theology, where relationships are framed as sacred covenants. The closing statement underscores the Puritan virtue of thankfulness to God for His mercies, tying material comfort to spiritual gratitude.
